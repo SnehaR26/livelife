@@ -1,6 +1,7 @@
 # livelife
 My Second shot with Github
-miling connects us with others. It is a peaceful sign. Take a moment to think of any photo you have ever seen of the Dalai Lama. He’s always smiling ear to ear, his face radiant.
+
+Smiling connects us with others. It is a peaceful sign. Take a moment to think of any photo you have ever seen of the Dalai Lama. He’s always smiling ear to ear, his face radiant.
 
 We know we can smile with our faces, but yoga teaches that we can also smile with our hearts. In Sanskrit, the Heart Chakra is known as “Anahata” which translates to “unhurt.” It means that deep inside each of us, beneath all the stuff, there is this place untouched by pain, mistrust, or hurt. It is a reservoir of ever re-generating love and abundant compassion. And the more we connect to our 4th Chakra (which represents the right to love and be loved), the more we feel an overall balance between giving and receiving in our lives. The stronger our Heart Chakra, the more able we are to share its qualities of unconditional love, compassion, acceptance and trust out in the world!
 
